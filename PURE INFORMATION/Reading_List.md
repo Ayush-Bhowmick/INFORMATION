@@ -1,0 +1,3 @@
+# READING LIST 
+## PROGRAMMING and TECH 
+
