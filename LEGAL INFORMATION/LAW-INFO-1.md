@@ -54,3 +54,7 @@
 -----------
 
 # LAW OF TORTS
+
+- `Crown Proceedings Act 1947` https://www.wikiwand.com/en/Crown_Proceedings_Act_1947 -   is an Act of the `Parliament of the United Kingdom` that allowed, for the first time, civil actions against the Crown to be brought in the same way as against any other party.
+
+- 
