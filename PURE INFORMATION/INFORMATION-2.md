@@ -8,7 +8,7 @@
 - Nitrate films (movie projection) burns 3x faster than paper. Hence can be used as explosive.
 - Reno, Nevada was the gambling capital of USA until Las Vegas... 
 - Real name of Marilyn Monroe war Norma Jeane.
-
+- DAKAR RALLY
 
 
 
